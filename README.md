@@ -1,6 +1,6 @@
         ／＞　 フ                     
         | 　_　_ | 
-        ／` ミ＿xノ                                    Permissionless Truth <> Bitcoin & Beyond, Experimentalist e/acc
+        ／` ミ＿xノ                Permissionless Truth <> Bitcoin & Beyond, Experimentalist e/acc
        /　　　　  |
       /　 ヽ　　  ﾉ
       │　　|　|　 |
