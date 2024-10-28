@@ -1,6 +1,6 @@
         ／＞　 フ                     
         | 　_　_ | 
-        ／` ミ＿xノ                                    https://www.cipherem.com 
+        ／` ミ＿xノ                                    Permissionless Truth <> Bitcoin & Beyond, Experimentalist e/acc
        /　　　　  |
       /　 ヽ　　  ﾉ
       │　　|　|　 |
